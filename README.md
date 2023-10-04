@@ -1,4 +1,2 @@
 # school-v1
-Needed for school
-Aloha
-U can't delete this ALOHA.
+I'm evil and I take all powers to ruin everyone's life :)
